@@ -67,4 +67,4 @@ https://github.com/lealbruuno/RocketSeat-FoodExplorer/assets/98700610/1ed4d7af-d
 
 #### Authors
 
-LinkedIn: [@lealbruuno](https://github.com/lealbruuno)
+LinkedIn: [@lealbruuno](https://www.linkedin.com/in/lealbruuno/)
